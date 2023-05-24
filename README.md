@@ -1,12 +1,12 @@
-Ovnikutina@gmail.com
-
-
+Resume
+IRINA SCHULTZ
+GitHub: https://github.com/irinaschultz | Email: irinaschultz5@gmail.com 
 
 PROFILE
 
-	Experienced professional with a proven track record of success in the healthcare industry, currently enrolled in the Data Analytics Bootcamp at UWA and seeking to build a long-lasting career in data analysis.
-	Extensive computer skills coupled with an ability to manipulate data and translate concepts into clear results to support decision-making.
-	Resourceful communicator, skilled at building productive relationships with stakeholders and clients from diverse backgrounds at all levels.
+Experienced professional with a proven track record of success in the healthcare industry, currently enrolled in the Data Analytics Bootcamp at UWA and seeking to build a long-lasting career in data analysis.
+Extensive computer skills coupled with an ability to manipulate data and translate concepts into clear results to support decision-making.
+Resourceful communicator, skilled at building productive relationships with stakeholders and clients from diverse backgrounds at all levels.
 
 KEY SKILLS 
 
@@ -31,26 +31,26 @@ ENROLLED NURSE | QUEENSLAND HEALTH (REDCLIFFE HOSPITAL)	AUG 2021 – PRESENT
 
 As a team member of the nursing support unit, I am providing full clinical support to patients at Redcliffe Hospital.
 
-	Providing holistic care to patients by actively being involved in the interventions, ensuring safe nursing care and acting as a patient advocate
-	Assisting registered nurses and other healthcare professionals and effectively handling a wide range of nursing tasks
-	Conducting accurate assessments, implementing the appropriate care plan and documenting patient information and details of care provided in medical records 
-	Consulting with patients to determine their needs and supporting their family members when required to actively contribute to a culture of exceptional compassion and a commitment to excellence
-	Ensuring a safe and clean working environment through appropriate clinical hygiene and health and safety practices
-	Collaborating with the hospital departments to maintain a comprehensive approach to care and provide best-practice outcomes for patients
+Providing holistic care to patients by actively being involved in the interventions, ensuring safe nursing care and acting as a patient advocate
+Assisting registered nurses and other healthcare professionals and effectively handling a wide range of nursing tasks
+Conducting accurate assessments, implementing the appropriate care plan and documenting patient information and details of care provided in medical records 
+Consulting with patients to determine their needs and supporting their family members when required to actively contribute to a culture of exceptional compassion and a commitment to excellence
+Ensuring a safe and clean working environment through appropriate clinical hygiene and health and safety practices
+Collaborating with the hospital departments to maintain a comprehensive approach to care and provide best-practice outcomes for patients
 
  ADMINISTRATION OFFICER & ACCOUNTANT | ELLIS MINING GROUP COMPANIES 	AUG 2014 – JUL 2021
 
 
 Ellis Mining Group specialises in the mining of lime and dolomite for distribution to farmers. I was responsible for administrative and customer liaison duties. 
-	Maintained company procedures; coordinated and scheduled executive meetings and appointments
-	Served as the first point of contact for clients and promptly responded to their queries utilising the knowledge of products and services; kept communication records for further reference
-	Managed accounts payable & receivable, and bank reconciliations; prepared Activity Statements such as BAS and IAS
-	Processed transactions using MYOB and Reckon and performed bookkeeping duties, including payroll, calculation of employee expense claims & entitlements, as well as month-end, quarterly, and end-of-year reporting
-	Managed invoices and chased down overdue payments by contacting clients and arranging payment plans to ensure outstanding amounts will be paid in full
-	Maintained accurate records of all business transactions for journal entries such as checks, bills, agreements, receipts, invoices, etc.; updated databases and filing systems
-	Liaised with external accountants and auditors regarding tax returns, statutory financial statements, budgets, change in equity reports and balance sheet reconciliations
-	Monitored company cashflow to ensure the business has sufficient cash at all times; prepared reports for actual and projected cash flow and provided recommendations for improvement
-	Assisted in managing special projects such as new product launches; prepared budget and calculated all possible expenses which impact product costs 
+Maintained company procedures; coordinated and scheduled executive meetings and appointments
+Served as the first point of contact for clients and promptly responded to their queries utilising the knowledge of products and services; kept communication records for further reference
+Managed accounts payable & receivable, and bank reconciliations; prepared Activity Statements such as BAS and IAS
+Processed transactions using MYOB and Reckon and performed bookkeeping duties, including payroll, calculation of employee expense claims & entitlements, as well as month-end, quarterly, and end-of-year reporting
+Managed invoices and chased down overdue payments by contacting clients and arranging payment plans to ensure outstanding amounts will be paid in full
+Maintained accurate records of all business transactions for journal entries such as checks, bills, agreements, receipts, invoices, etc.; updated databases and filing systems
+Liaised with external accountants and auditors regarding tax returns, statutory financial statements, budgets, change in equity reports and balance sheet reconciliations
+Monitored company cashflow to ensure the business has sufficient cash at all times; prepared reports for actual and projected cash flow and provided recommendations for improvement
+Assisted in managing special projects such as new product launches; prepared budget and calculated all possible expenses which impact product costs 
 
 PREVIOUS EXPERIENCE
 
